@@ -1,16 +1,15 @@
-### Hi there 👋
+### Hi nothere 👋
+<br>
+✨A writer who loves astronomy.
+<br>
+🐱Own A Orange Cat.(WARNING:SHE LIKES EATING HUMANS)
+<br>
+❓Not a programmer.
+<br>
+🍨Sweet-tooth.
+<br>
+🔫Opps,my dentist wants to kill me.
+<br>
+<br>
+🌹READ FATAMORU.
 
-<!--
-**havenoideawhatismyname/havenoideawhatismyname** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
